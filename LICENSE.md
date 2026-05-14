@@ -1,4 +1,4 @@
-#  
+#  3008 Script ultimate is the best 3008 Script, featuring god mode and unlimited stamina. Safe and powerful for all your needs.
 
 
 
